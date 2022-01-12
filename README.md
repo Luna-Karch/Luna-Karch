@@ -3,3 +3,7 @@ Hey! My name is Luna! I really like coding and I am currently learning Python an
 Via my discord: Luna🌙💤#2077
 
 ![Alt Text](https://github.com/Luna-Karch/Luna-Karch/blob/main/user_profile.png?raw=true "User Profile")
+
+or Via email at: luna.karch05@gmail.com
+
+![Alt Text](https://github.com/Luna-Karch/Luna-Karch/blob/main/google_user_profile.png?raw=true "Google User Profile")

@@ -2,7 +2,7 @@ Hey! My name is Luna! I really like coding and I am currently learning Python an
 
 Via my discord: \_\_luna\_\_()#2077
 =======
-![Alt Text](https://github.com/Luna-Karch/Luna-Karch/blob/main/user_profile_new_new.png?raw=true "User Profile")
+![Alt Text](https://raw.githubusercontent.com/Luna-Karch/Luna-Karch/main/Screenshot%202023-08-25%20191245.png)
 
 or Via email at: luna.karch05@gmail.com
 
